@@ -1,2 +1,1 @@
-# blum
-garap airdrop blum
+
